@@ -1,1 +1,1 @@
-Gideon means mighty man of valor
+Gideon AROWOLO is my name
