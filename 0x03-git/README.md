@@ -1,0 +1,1 @@
+Gideon means mighty man of valor
